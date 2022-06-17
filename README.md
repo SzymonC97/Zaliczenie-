@@ -1,1 +1,1 @@
-# Zaliczenie-
+# Zaliczenie
